@@ -1,4 +1,4 @@
-##Selected Samples for the Current Study
+## Selected Samples for the Current Study
 
 The following map shows the locations and distribution of 33 selected samples(fire cases) to document human right violations.
 
